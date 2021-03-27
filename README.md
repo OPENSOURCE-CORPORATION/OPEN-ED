@@ -14,3 +14,5 @@ Join the Telegram group :
 Meeting platform : G-Meet
 
 Next meet Date and Time : 
+
+Sheduled Joining Link :
