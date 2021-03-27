@@ -4,16 +4,16 @@ If you are here you might want to contribute, hence you can join us at monthly/w
 
 So, to connect :
 
-Join the Whatsapp Group : 
+Join the Whatsapp Group : https://chat.whatsapp.com/EvMAXkQHJCKGAW7zwqW7Hj
 
-Join the Discord Group : 
+Join the Discord Group : https://discord.gg/Rjc3bv6Xen
 
-Join the Telegram group : 
+Join the Telegram group : https://t.me/joinchat/POShKnULgWdhNmY1
 
 # Meeting Details
 Meeting platform : G-Meet
 
-Next meet Date and Time : 
+Next meet Date and Time : 29th March 4:00 P.M. IST
 
 Sheduled Joining Link :
 
