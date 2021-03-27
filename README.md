@@ -10,6 +10,8 @@ Join the Discord Group : https://discord.gg/Rjc3bv6Xen
 
 Join the Telegram group : https://t.me/joinchat/POShKnULgWdhNmY1
 
+Google Form Link  : https://forms.gle/GpREcPXqNLo9mdxT9
+
 # Meeting Details
 Meeting platform : G-Meet
 
