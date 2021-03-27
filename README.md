@@ -16,3 +16,14 @@ Meeting platform : G-Meet
 Next meet Date and Time : 
 
 Sheduled Joining Link :
+
+# Tech-Stack:
+
+Frontend : 
+
+1. React /React Native
+
+2. Javascript
+
+Backend : 
+1. MongoDB
